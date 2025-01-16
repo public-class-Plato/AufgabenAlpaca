@@ -1,2 +1,2 @@
 # AufgabenAlpaca
-Aur ripository tu aur kläss protschket
+Aur ripositorii tu aur kläss protschket
